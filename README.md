@@ -1,3 +1,5 @@
+![cc 3.0](https://licensebuttons.net/l/by-nc/3.0/br/80x15.png) ([CC-3.0 permissive license](https://tldrlegal.com/license/creative-commons-attribution-(cc)#summary))
+
 # WARNING
 
 Here are my (very simplified) ideias, I don't have intention to make it like a paper or sound as if I were an expert, I'm mostly a game player as many of you. 
